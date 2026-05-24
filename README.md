@@ -1,4 +1,4 @@
-### Hi, I'm Lehar
+### Hi, I'm Lehar : )
 
 **Associate Programmer Analyst at Moody's Analytics** · B.Tech AI, NMIMS Mumbai
 
